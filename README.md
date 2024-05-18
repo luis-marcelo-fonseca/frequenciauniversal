@@ -1,2 +1,3 @@
+O Programa Frequência Universal representa uma fascinante e inovadora ferramenta de comunicação com o universo. Ao inserir sua foto e nome, esses elementos são cuidadosamente empacotados e convertidos, juntamente com a frequência numerológica de Grabovoi, em ondas sonoras que são lançadas ao universo. Ao utilizar esta poderosa ferramenta e concentrar-se na visualização do conteúdo apresentado na tela, você ativa e direciona ondas mentais de alta intensidade. Este processo cria uma conexão profunda e potente com o universo, permitindo manifestações e sincronicidades que ampliam sua jornada de autodescoberta e realização pessoal.
 
 ![DGT Dislplay](https://github.com/luis-marcelo-fonseca/frequenciauniversal/blob/main/1.png)
